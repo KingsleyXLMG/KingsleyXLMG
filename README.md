@@ -4,15 +4,14 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-CMA Accounting is a leading provider of Accounting, Taxation and Business Advice for any individual or business.
-We have been working at the heart of the North West for 13 years, providing many Businesses with Support and Advice.
-Our currency is your success!
+XL Marketing Grp is a UK based Direct Marketing Agency and Digital Marketing Agency that has been trading for over 15 years. We have proven skills in Lead Generation, Data Provision, Social Media Marketing and Website Development. Our skilled teams deliver technology driven, customer focused solutions focusing on your Return on Investment
 
-www.cma-accountancy.com
-enquiry@cma-accountancy.com
-01257 255521
-39 Skull House Lane, Appley Bridge,
-Wigan WN6 9DR
+www.xlmg.co.uk
+info@xlmg.co.uk
+01772585111
+Strawberry Fields, Euxton Lane,
+Chorley, Lancashire.
+PR7 1PQ
 
 
 <!---
